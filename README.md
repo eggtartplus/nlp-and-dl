@@ -1,2 +1,2 @@
-# “[Huoting He] [222041043]
+#[Huoting He] [222041043]
 assignment
